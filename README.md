@@ -5,3 +5,5 @@ forse sarebbe meglio se eliminassero tutti gli HR
 Persone inutili
 
 un altra aggiunta di odio per quelle merde
+
+sfaddfadf
